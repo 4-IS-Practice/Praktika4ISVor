@@ -10,7 +10,7 @@
 >>"Не бывайте в 1эс, вы матерям еще нужны"
 с. Джейсон Стетхем :)
 <p align="center">
-  <img width="350" height="300" src="/Test/stet.jpg">
+  <img width="350" height="300" src="https://imagesmi.cdnbro.com/posts/562769-dzheison-stetkhem-10.jpg">
 </p>
 
 ## Возможные последствия
